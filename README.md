@@ -1,2 +1,0 @@
-# stunning-fiesta
-tutorial
